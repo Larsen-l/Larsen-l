@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Larsen-l
-- 👀 I’m interested in all of the code
-- 🌱 I’m currently learning all languages
+- 👀 I’m interested in creating websites and learining new langues.
+- 🌱 I’m currently learning at Kangan Institute
 - 💞️ I’m looking to collaborate on everything
-- 📫 How to reach me: you dont, i will apear when you most need me.
+- 📫 How to reach me: you dont, i will apear when you most need me.but if you want here is my Email. larsenlarsen777@gmail.com
 - ⚡ Fun fact: I dont ask chat GPT for help, Chat GPT ask me for help.
 
 <!---
